@@ -6,21 +6,19 @@
 
 
 
-### Ingredientes
+### Ingredientes:
 
-- 800 gramas de carne moída;
-- 500 gramas de massa para lasanha;
-- 250 gramas de muçarela;
-- 200 gramas de presunto;
--     50 gramas de queijo parmesão ralado;
--     ​    2 sachês de molho de tomate ;
--     ​    2 colheres de óleo;
--     ​    2 dentes de alho;
--     ​    1 cebola picada ;
--     ​    sal à gosto;
--     ​    orégano à gosto 
-
-
+* 800 gramas de carne moída;
+* 500 gramas de massa para lasanha;
+* 250 gramas de muçarela;
+* 200 gramas de presunto;
+*   50 gramas de queijo parmesão ralado;
+* ​    2 sachês de molho de tomate;
+* ​    2 colheres de óleo;
+* ​    2 dentes de alho picado;
+* ​    1 cebola picada;
+* ​    sal à gosto;
+* ​    orégano à gosto ou tempero de sua preferência
 
 
 
