@@ -2,11 +2,11 @@
 
 
 
-
-
-
-
 ![img](https://media.tenor.com/images/200b9d7998fc15b767e5af5bf2375a8a/tenor.gif)
+
+
+
+
 
 
 
@@ -16,7 +16,7 @@
 * 500 gramas de massa para lasanha
 * 250 gramas de muçarela;
 * 200 gramas de presunto;
-*      50 gramas de parmesão ralado;
+*       50 gramas de parmesão ralado;
 * ​    2 sachês de molho de tomate;
 * ​    2 colheres de sopa de óleo;
 * ​    2 dentes de alho picado;
